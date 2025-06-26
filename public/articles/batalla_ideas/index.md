@@ -16,6 +16,10 @@ A inicios del siglo XXI, Cuba enfrentó un momento crucial con la **Batalla de I
 
 El corazón de la Batalla de Ideas fueron los **Programas de la Revolución**, proyectos sociales que transformaron la vida cotidiana. La universalización de la educación superior, las misiones culturales en comunidades rurales y la expansión del acceso a la salud marcaron hitos. Millones de cubanos se beneficiaron, mientras artistas, maestros y médicos se convirtieron en protagonistas de un proyecto colectivo. La campaña también promovió debates públicos sobre ética, antiimperialismo y derechos humanos, vinculando ideología y acción.
 
+##La CUJAE: Laboratorio de la Batalla de Ideas en la formación técnica
+La Universidad Tecnológica de La Habana **José Antonio Echeverría** (CUJAE) se convirtió en un bastión académico de esta campaña, integrando sus principios éticos en la formación de ingenieros y arquitectos. Bajo el concepto de universalización, la institución expandió su alcance a municipios mediante sedes universitarias, llevando carreras técnicas a zonas rurales y fábricas. Estudiantes y profesores participaron activamente en programas como la Revolución Energética, diseñando soluciones tecnológicas para enfrentar el bloqueo, mientras debates sobre ciencia con conciencia reforzaban el vínculo entre innovación y soberanía. Hoy, aquel espíritu perdura en proyectos de investigación que priorizan el desarrollo local, demostrando que la Batalla de Ideas también se libró —y se gana— desde los laboratorios y las aulas.  
+
+
 ![Cartel con frase de Martí](./images/Foto_2.jpg)
 
 La defensa de la identidad nacional fue clave. En respuesta al secuestro del niño Elián González en Estados Unidos (1999-2000), Cuba movilizó a su pueblo en protestas pacíficas, demostrando el poder de la unidad. Este episodio, junto a la creación de canales de televisión educativos y proyectos comunitarios, reforzó el tejido social. La Batalla de Ideas, aunque formalmente concluyó en 2011, dejó un legado de empoderamiento ciudadano y conciencia crítica.
