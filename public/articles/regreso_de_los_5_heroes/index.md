@@ -27,6 +27,10 @@ El **17 de diciembre de 2014**, tras negociaciones secretas entre Cuba y Estados
 
 El regreso no solo cerró un capítulo de dolor, sino que reforzó el discurso de resistencia frente al bloqueo económico. Hoy, Los Cinco son símbolos de lealtad: sus nombres aparecen en escuelas, murales y canciones. Su historia se enseña como ejemplo de sacrificio colectivo y diplomacia persistente.
 
+##La CUJAE: Formando profesionales con el ejemplo de los Cinco
+
+El impacto de los Cinco trascendió lo político para convertirse en un pilar educativo. En la Universidad Tecnológica de La Habana (CUJAE), su historia se estudia como ejemplo de integridad y compromiso social, valores centrales en la formación de ingenieros y arquitectos. Antonio Guerrero, con su perfil técnico (graduado en Ingeniería Civil), ha participado en encuentros con estudiantes de esta casa de altos estudios, reforzando el mensaje de que la ciencia y la tecnología deben estar al servicio de la justicia. Proyectos muralísticos y jornadas académicas en la CUJAE mantienen vivo su legado, demostrando que la resistencia también se construye desde las aulas.  
+
 ![Acto público con Los Cinco](./images/Foto_3.jpg)
 
 ---
